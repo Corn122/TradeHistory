@@ -1,1 +1,1 @@
-Dm Oceans#6858 for help regarding the software
+Dm Oceans#6858 for password.
